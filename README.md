@@ -1,6 +1,6 @@
 # 极速VIP机场官网地址
 
-最新地址：[jisuvip.com](https://vip.xixi6.net/auth/register?code=lh8Q)
+最新地址：[jisuvip.com](https://jisuv79.xyz/auth/register?code=Ne27)
 
 ## 极速VIP介绍
 
